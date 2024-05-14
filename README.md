@@ -1,2 +1,2 @@
 # surajcodes
-My codes
+My codes are avaliable for public
